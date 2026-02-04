@@ -1,7 +1,7 @@
 # 👋 Hi, I'm Ransom Robins Fernando!
 
 🎓 MSc Business Analytics @ University of Birmingham  
-📍 Birmingham, UK | 📧 ransom301998@gmail.com  
+📍 Birmingham, UK | 📧 ransomrobinsfernando@gmail.com  
 
 ---
 
@@ -30,7 +30,7 @@
 
 ## 🤝 Let's Connect!
 
-📧 [Email](mailto:ransom301998@gmail.com)  
+📧 [Email](mailto:ransomrobinsfernando@gmail.com)  
 🔗 [LinkedIn](https://www.linkedin.com/in/ransomrobinsfernando)  
 
 ---

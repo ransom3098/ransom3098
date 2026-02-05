@@ -31,7 +31,7 @@
 ## 🤝 Let's Connect!
 
 📧 [Email](mailto:ransomrobinsfernando@gmail.com)  
-🔗 [LinkedIn](https://www.linkedin.com/in/ransomrobinsfernando)  
+🔗 [LinkedIn](https://www.linkedin.com/in/ransom-robinsfernando)  
 
 ---
 
